@@ -19,8 +19,7 @@ Here I share projects, experiments
 ## 📫 Connect With Me
 - 💼 [LinkedIn](https://www.linkedin.com/in/mhd-ali-44058a329?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 - 📧 Email: mhmmali20041o@gmail.com
-- 🌐 Portfolio / Blog (if you have)
-
+  
 ---
 
 ⭐️ *“Always learning, always building.”*
